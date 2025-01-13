@@ -33,4 +33,4 @@ https://github.com/user-attachments/assets/633fcdd5-1167-4f43-9e24-f28b9338130f
 
 
 # 📣 İletişim
-📧 Eğer projeyle ilgili sorularınız veya geri bildirimleriniz varsa, bana ulaşabilirsiniz:
+📧 Eğer projeyle ilgili sorularınız veya geri bildirimleriniz varsa, bana ulaşabilirsiniz:akgundogduesr@gmail.com
